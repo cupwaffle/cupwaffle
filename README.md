@@ -10,23 +10,25 @@
 
 <p align="center"> <b> hello im ethan
 <br> 17, he/him, sp6-infp </b>
-<br> i also have a wonderful awesome girlfriend ^_^
+<br> i have an amazing wonderful girlfriend ^_^
 <br>
 <br>
 
 <p align="center"> i   am autistic so i may have issues with tone/misunderstandings, just lmk if youre upset with me straight up and we'll be ok!
-<p align="center"> im open to interactions! though i may be an awkward slug i apologize. i also have bad anxiety with new people ^_^' but i will always do my best!
+<p align="center"> im open to interactions! though i may be an awkward slug i apologize
 
 <br>
 <br>
-<p align="center"> ⊰═══════════════════⊱
+<p align="center"> ⊰═══════════════════════════════════════════════════⊱
 
 <br>
 <br>
 <p align="center"> <b> heres where you can find me; </b>
 <p align="center"> ➼ https://youareelrataalada.straw.page/
 <p align="center"> ➼ https://en.pronouns.page/@cupwaffle
+<p align="center"> discord: cupwaffle
 
 <p align="center"> <img src="https://file.garden/ZsbUMhc35wTJJvwY/toyhouse/scuttletoyhouse" width="150">
 <p align="center"> ^ my gay ugly son
 <p align="center"> <img src="https://64.media.tumblr.com/f03e7cb9660e0ddcd62df3644fe05ed5/17e56c69ffb64f87-2f/s2048x3072/c413b562113c5dce9c743522397f8b8e14815d66.pnj" width="630" style="border-radius: 15px;">
+

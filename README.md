@@ -26,7 +26,7 @@
 <p align="center"> <b> heres where you can find me; </b>
 <p align="center"> ➼ https://youareelrataalada.straw.page/
 <p align="center"> ➼ https://en.pronouns.page/@cupwaffle
-<p align="center"> discord: cupwaffle
+<p align="center"> ➼ discord: cupwaffle
 
 <br>
 <br>

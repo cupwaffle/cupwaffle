@@ -28,7 +28,16 @@
 <p align="center"> ➼ https://en.pronouns.page/@cupwaffle
 <p align="center"> discord: cupwaffle
 
+<br>
+<br>
+<p align="center"> ⊰═══════════════════════════════════════════════════⊱
+<br>
+<br>
+
 <p align="center"> <img src="https://file.garden/ZsbUMhc35wTJJvwY/toyhouse/scuttletoyhouse" width="150">
 <p align="center"> ^ my gay ugly son
+<p align="center">
+  i really enjoy writing. <a href="https://toyhou.se/30882895.scuttle">this guy</a> is my favorite oc of all time!!
+</p>
 <p align="center"> <img src="https://64.media.tumblr.com/f03e7cb9660e0ddcd62df3644fe05ed5/17e56c69ffb64f87-2f/s2048x3072/c413b562113c5dce9c743522397f8b8e14815d66.pnj" width="630" style="border-radius: 15px;">
 

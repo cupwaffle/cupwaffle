@@ -14,8 +14,8 @@
 <br>
 <br>
 
-<p align="center"> i   am autistic so i may have issues with tone, just lmk if youre upset with me straight up and we'll be ok!
-<p align="center"> im open to interactions! though i may be an awkward slug i apologize. i also have bad anxiety so i  may mess up
+<p align="center"> i   am autistic so i may have issues with tone/misunderstandings, just lmk if youre upset with me straight up and we'll be ok!
+<p align="center"> im open to interactions! though i may be an awkward slug i apologize. i also have bad anxiety with new people ^_^' but i will always do my best!
 
 <br>
 <br>

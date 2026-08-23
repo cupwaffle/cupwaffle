@@ -1,5 +1,5 @@
 <p> <p align="center">
-  <img src="https://64.media.tumblr.com/cab0b79b5af9468b83dc8565dd7d87f0/4739b0638e17d953-58/s100x200/d6a712f0a255726d139c981c6cf9405f0192a860.pnj" width="190" style="border-radius: 15px;">
+  <img src="https://64.media.tumblr.com/cab0b79b5af9468b83dc8565dd7d87f0/4739b0638e17d953-58/s100x200/d6a712f0a255726d139c981c6cf9405f0192a860.pnj" width="150" style="border-radius: 15px;">
   <p align="center"> <img src="https://64.media.tumblr.com/f03e7cb9660e0ddcd62df3644fe05ed5/17e56c69ffb64f87-2f/s2048x3072/c413b562113c5dce9c743522397f8b8e14815d66.pnj" width="630" style="border-radius: 15px;">
 
 <p> <p align="center"> ▄︻デ══━一

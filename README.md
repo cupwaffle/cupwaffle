@@ -38,8 +38,11 @@
 <p align="center"> ^ my gay ugly son
 <p align="center">
   i really enjoy writing. <a href="https://toyhou.se/30882895.scuttle">this guy</a> is my favorite oc of all time!!
+  </div>
+  <div align="center">
+  <a href="https://holloweye.straw.page/">check out our project!</a>
+</div>
 </p>
 <p align="center"> <img src="https://64.media.tumblr.com/f03e7cb9660e0ddcd62df3644fe05ed5/17e56c69ffb64f87-2f/s2048x3072/c413b562113c5dce9c743522397f8b8e14815d66.pnj" width="630" style="border-radius: 15px;">
   <div align="center">
 <img src=https://komarev.com/ghpvc/?username=cupwaffle&color=BBC3EE>
-</div>

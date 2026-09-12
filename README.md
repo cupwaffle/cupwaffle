@@ -1,6 +1,6 @@
 <p> <p align="center">
   <img src="https://64.media.tumblr.com/cab0b79b5af9468b83dc8565dd7d87f0/4739b0638e17d953-58/s100x200/d6a712f0a255726d139c981c6cf9405f0192a860.pnj" width="150" style="border-radius: 15px;">
-  <p align="center"> <img src="https://64.media.tumblr.com/f03e7cb9660e0ddcd62df3644fe05ed5/17e56c69ffb64f87-2f/s2048x3072/c413b562113c5dce9c743522397f8b8e14815d66.pnj" width="630" style="border-radius: 15px;">
+  <p align="center"> <img src="https://64.media.tumblr.com/2dd680ad92863ea51ebb54abe38eac39/969b2e3fe791788f-2f/s2048x3072/1a478846e410a72f3b5179117969efbc70d5c61f.pnj" width="630" style="border-radius: 15px;">
 
 <p> <p align="center"> ▄︻デ══━一
 
@@ -43,6 +43,6 @@
   <a href="https://holloweye.straw.page/">check out our project!</a>
 </div>
 </p>
-<p align="center"> <img src="https://64.media.tumblr.com/f03e7cb9660e0ddcd62df3644fe05ed5/17e56c69ffb64f87-2f/s2048x3072/c413b562113c5dce9c743522397f8b8e14815d66.pnj" width="630" style="border-radius: 15px;">
+<p align="center"> <img src="https://64.media.tumblr.com/2dd680ad92863ea51ebb54abe38eac39/969b2e3fe791788f-2f/s2048x3072/1a478846e410a72f3b5179117969efbc70d5c61f.pnj" width="630" style="border-radius: 15px;">
   <div align="center">
 <img src=https://komarev.com/ghpvc/?username=cupwaffle&color=BBC3EE>

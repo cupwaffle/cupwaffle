@@ -35,15 +35,6 @@
 <br>
 <br>
 
-<p align="center"> <img src="https://file.garden/ZsbUMhc35wTJJvwY/toyhouse/scuttletoyhouse" width="150">
-<p align="center"> ^ my gay ugly son
-<p align="center">
-  i really enjoy writing. <a href="https://toyhou.se/30882895.scuttle">this guy</a> is my favorite oc of all time!!
-  </div>
-  <div align="center">
-  <a href="https://holloweye.straw.page/">check out our project!</a>
-</div>
-</p>
 <p align="center"> <img src="https://64.media.tumblr.com/2dd680ad92863ea51ebb54abe38eac39/969b2e3fe791788f-2f/s2048x3072/1a478846e410a72f3b5179117969efbc70d5c61f.pnj" width="630" style="border-radius: 15px;">
   <div align="center">
 <img src=https://komarev.com/ghpvc/?username=cupwaffle&color=BBC3EE>
